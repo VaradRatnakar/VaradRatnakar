@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Nothing For now (Still Learning !)
 - 📫 How to reach me ? Just EMail me
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am Addicted to all sorts of Legal Caffenine,LOL!
+- ⚡ Fun fact: I am Addicted to all sorts of Legal Caffeine,LOL!
 
 <!---
 VaradRatnakar/VaradRatnakar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
